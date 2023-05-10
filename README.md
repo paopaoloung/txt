@@ -1,4 +1,4 @@
-# <a href="#movLoc">1. 視頻網址]</a>
+# <a href="#movLoc">1. 視頻網址</a>
 # <a href="#comicMov">1. 動畫電影</a>
 
 
