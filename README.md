@@ -1,5 +1,5 @@
 
-<a href="comicMov"># 動畫電影</a>
+<a href="#comicMov"># 動畫電影</a>
 
 
 .a
