@@ -15,7 +15,7 @@
 ## <a id="comicMov">動畫電影</a>
 > * [爆笑虫子之冒险岛大电影](https://www.shsanrui.com/sslay/299960-2-1.html)
 > * [神偷奶爸4](https://iyf.tv/play/hBhzqLUfGHQ)
-> * [功夫熊猫4] (https://www.iyf.tv/play/jQhTPeeB0gC)
+> * [功夫熊猫4](https://www.iyf.tv/play/jQhTPeeB0gC)
 
 
 > * [灵境行者]https://www.sumingxs.com/xiaoshuo/2/628/
