@@ -23,5 +23,7 @@
 > * [灵境行者]https://www.sumingxs.com/xiaoshuo/2/628/
 
 
+>*[絶境黑夜]https://www.tangsanbooks.com/book/1200541-8.html
+
 
 
