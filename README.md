@@ -26,4 +26,5 @@
 >*[絶境黑夜]https://www.tangsanbooks.com/book/1200541-8.html
 
 >*[大師兄] https://www.iyf.tv/play/s6tifzcpecL
+>*[大師兄2] >https://www.jilunxi.cn/jsplay/45754-2-1.html
 
