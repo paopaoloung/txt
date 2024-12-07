@@ -30,6 +30,8 @@
 >*[大師兄2] >https://www.jilunxi.cn/jsplay/45754-2-1.html
 
 >*[大師兄3] https://www.kangqihs.com/play/dashixiongyueyu/1-1.html
+>
 >*[大師兄4] https://kuyatv.app/vodplay/dashixiongyueyu/2/1/
 >
+>*[伦文叙老点柳先开粤语] https://www.qdxinxiangrui.com/dakai/88465-1-1.html
 
