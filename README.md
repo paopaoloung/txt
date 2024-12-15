@@ -38,9 +38,47 @@
 >*[伦文叙老点柳先开粤语2] https://www.kangqihs.com/play/lunwenxulaodianliuxiankaiyueyu/3-1.html
 
 >*[黑豹天下粤语] https://m.kkw18.com/xijupian/heibaotianxia/2-2.html
+>
+>*[黑豹天下粤语2] https://www.youtube.com/watch?v=z3y09jSZElQ
+
 >*[黑豹天下粤语2] https://www.youtube.com/watch?v=z3y09jSZElQ
 >
+>*[周星驰 国产凌凌漆 粤语中字] https://www.youtube.com/watch?v=TnQi6E8MdYY
+
+
+>*[逃學威龍1] https://www.youtube.com/watch?v=v6HV6RiuR1E&list=PLVhsZg7XrpyHJIhVr44se03Oyp_cMjbM7&index=7
 >
+>[逃學威龍2](https://www.youtube.com/watch?v=giaYSPwbnp8&list=PLVhsZg7XrpyHJIhVr44se03Oyp_cMjbM7&index=10)
+
+>*[鹿鼎记2神龙教 周星驰 粤语] https://www.youtube.com/watch?v=KRuXbaHbajo
+
+>*[新精武門] https://www.youtube.com/watch?v=Jk6IXT0x0cg
+
+>*[新精武門2] https://www.youtube.com/watch?v=40pz4gDN5gI
+
+>*[整蠱專家] https://www.youtube.com/watch?v=iJOktEwVXoY
+
+>*[武俠七公主] https://www.youtube.com/watch?v=eV_UhbZ8-oc
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+>*[] Q
+
+
+
+
 >*[毒液3] https://www.mmov.app/vodplay/309275/3-1.html>
 >
 >*[少年黄飞鸿之铁马骝粤语]https://kandianshi.org/index.php/vod/play/id/121893/sid/1/nid/1.html
