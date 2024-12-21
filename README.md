@@ -49,6 +49,10 @@
 >*[逃學威龍1] https://www.youtube.com/watch?v=v6HV6RiuR1E&list=PLVhsZg7XrpyHJIhVr44se03Oyp_cMjbM7&index=7
 >
 >[逃學威龍2](https://www.youtube.com/watch?v=giaYSPwbnp8&list=PLVhsZg7XrpyHJIhVr44se03Oyp_cMjbM7&index=10)
+>
+>*[鹿鼎记 周星驰 粤语] https://www.dailymotion.com/video/x8n08m5
+
+>*[鹿鼎记 周星驰 粤语] 
 
 >*[鹿鼎记2神龙教 周星驰 粤语] https://www.youtube.com/watch?v=KRuXbaHbajo
 
@@ -60,7 +64,7 @@
 
 >*[武俠七公主] https://www.youtube.com/watch?v=eV_UhbZ8-oc
 
->*[] Q
+
 
 >*[] Q
 
