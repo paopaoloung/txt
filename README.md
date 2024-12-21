@@ -52,7 +52,9 @@
 >
 >*[鹿鼎记 周星驰 粤语] https://www.dailymotion.com/video/x8n08m5
 
->*[鹿鼎记 周星驰 粤语] 
+>*[鹿鼎记 周星驰 粤语a] https://www.dailymotion.com/video/x6x68q1
+>
+>*[鹿鼎记 周星驰 粤语b] https://www.dailymotion.com/video/x6x9olb
 
 >*[鹿鼎记2神龙教 周星驰 粤语] https://www.youtube.com/watch?v=KRuXbaHbajo
 
