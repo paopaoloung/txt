@@ -71,9 +71,9 @@
 
 >*[海洋奇缘] https://kandianshi.org/index.php/vod/play/id/56492/sid/2/nid/1.html
 
->*[] Q
+>*[sonic3](https://www.kangqihs.com/play/ciweisuonike3/1-1.html)
 
->*[] Q
+>*aaa[sonic3] https://www.iyf.tv/play/yyfINjL37TX
 
 >*[] Q
 
