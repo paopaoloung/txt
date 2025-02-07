@@ -81,7 +81,7 @@
 
 >*[] Q
 
->*[1230000] https://hnxz5.rxftw.com/me.i38.gesture.apk?auth_key=1738907253-RRIfcZodBsbQ9se8-0-5239ff4d9cf2b9f556137c49dbb8cb6a
+>*[tmp] 0
 
 
 
