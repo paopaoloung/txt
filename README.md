@@ -7,33 +7,14 @@
 > * [88影視](https://www.kangqihs.com/vodtype/1.html)
 > * [量子影視](http://wandouys.net/index.php/vod/show/id/6.html)
 > * [星辰影院](https://www.shsanrui.com/ssype/1.html)
-> * 111(https://www.mmov.app/)
-> * 222 (https://www.vyanke.com/)
-> * 333 (https://www.iyf.tv/list/movie-123)
-> * Neet, Angel and naughty Family にーとと天使とえっちな家族 死宅、天使和甜蜜的家 (https://www22.eyny.com/Av/watch?v=VQJOPR3vJFv)
-
-
 
 ##
  <a id="comicMov">動畫電影</a>
-> * [死侍与金刚狼](http://wandouys.net/index.php/vod/play/id/84028/sid/1/nid/1.html)
-> * [神偷奶爸4](https://iyf.tv/play/hBhzqLUfGHQ)
-> * [功夫熊猫4](https://www.iyf.tv/play/jQhTPeeB0gC)
-
 
 > * [灵境行者]https://www.sumingxs.com/xiaoshuo/2/628/
 
-
 >*[絶境黑夜]https://www.tangsanbooks.com/book/1200541-8.html
 
->*[大師兄] https://www.iyf.tv/play/s6tifzcpecL
->
->*[大師兄2] >https://www.jilunxi.cn/jsplay/45754-2-1.html
-
->*[大師兄3] https://www.kangqihs.com/play/dashixiongyueyu/1-1.html
->
->*[大師兄4] https://kuyatv.app/vodplay/dashixiongyueyu/2/1/
->
 >*[伦文叙老点柳先开粤语] https://www.qdxinxiangrui.com/dakai/88465-1-1.html
 
 >*[伦文叙老点柳先开粤语2] https://www.kangqihs.com/play/lunwenxulaodianliuxiankaiyueyu/3-1.html
@@ -71,13 +52,9 @@
 
 >*[海洋奇缘] https://kandianshi.org/index.php/vod/play/id/56492/sid/2/nid/1.html
 
->*[sonic3](https://www.kangqihs.com/play/ciweisuonike3/1-1.html)
+>*[雄狮少年2] https://www.iyf.tv/play/br7ZiQom4G9
 
->*aaa[sonic3] https://www.iyf.tv/play/yyfINjL37TX
-
->*[我的世界大电影] https://www.iyf.tv/play/cOmsRkxndc6
-
->*[] Q
+>*[scum--shadow] https://www.douyin.com/user/self?from_tab_name=main&modal_id=7374361745529326899&showTab=watch_later
 
 >*[] Q
 
